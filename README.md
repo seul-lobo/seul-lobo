@@ -1,4 +1,4 @@
-# Hola, I'm Muhammad Usama! <img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="25px">
+# Hola, I'm Usama Afridi! <img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="25px">
 
 # 💫 About Me:
 
